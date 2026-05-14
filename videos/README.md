@@ -15,3 +15,4 @@
 - 11 - 🎬 [Street-Fighter-6-🔥-MENARD-(Alex)-Vs-HEAVENG-(E.Honda)🔥SF6-High-Level-Matches!](https://github.com/justforregister7796-commits/FGC/tree/main/videos/Street-Fighter-6-%F0%9F%94%A5-MENARD-%28Alex%29-Vs-HEAVENG-%28E.Honda%29%F0%9F%94%A5SF6-High-Level-Matches%21)
 - 12 - 🎬 [Street-Fighter-6-🔥-PROBLEM-X-(#1-Ranked-Alex)-Vs-ARES-(Chun-Li)🔥SF6-High-Level-Matches!](https://github.com/justforregister7796-commits/FGC/tree/main/videos/Street-Fighter-6-%F0%9F%94%A5-PROBLEM-X-%28%231-Ranked-Alex%29-Vs-ARES-%28Chun-Li%29%F0%9F%94%A5SF6-High-Level-Matches%21)
 - 13 - 🎬 [This-Is-So-GOOD!!!-BigBig-Won-Blitz-2-Review](https://github.com/justforregister7796-commits/FGC/tree/main/videos/This-Is-So-GOOD%21%21%21-BigBig-Won-Blitz-2-Review)
+- 14 - 🎬 [Thoughts-on-Alex's-competitive-potential](https://github.com/justforregister7796-commits/FGC/tree/main/videos/Thoughts-on-Alex%27s-competitive-potential)
